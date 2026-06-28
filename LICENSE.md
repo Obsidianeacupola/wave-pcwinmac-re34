@@ -1,4 +1,4 @@
-# 
+# Open Source Wave scripts pour Mac OS | Meilleur Wave scripts pour PC Windows. Avec calcul des impôts fédéraux et intégration d'API — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
